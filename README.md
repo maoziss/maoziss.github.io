@@ -1,1 +1,1 @@
-# maoziss.github.io
+# [maoziss.github.io](https://hoo.be/mimiyjs)
